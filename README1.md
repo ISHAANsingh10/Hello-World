@@ -1,0 +1,7 @@
+# HELLO WORLD
+
+HI HUMAN !!!!!!
+
+ISHAANsingh10 here, new brat in "GITHUB".
+
+JUST LEARNED PYHTHON
